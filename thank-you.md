@@ -1,1 +1,1 @@
-# thanks for stopping by and supporting this project ❤️❤️❤️
+# thanks for stopping by and supporting everything I've done ❤️❤️❤️
